@@ -1,4 +1,5 @@
 hello i am crippled
-(not literally but thats my name for some stupid reason)
-do not talk to me. ever. that's it.
+
+i am a certified motherfricker, and id recommend keeping an eye on ur parents because i will do both of them
+
 bye
