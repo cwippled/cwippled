@@ -1,2 +1,2 @@
 https://discord.gg/sSTwSHvSuS
-krazy krippled klan, join for whatever idk
+join for leaks, _things_ 😉, archives and projects
